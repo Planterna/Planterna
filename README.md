@@ -1,3 +1,3 @@
-👋 Hi, I’m Jonathan Alejandro @Planterna
-👀 I’m interested in Coding, Video Games, Cubos Rubik!
-🌱 I’m currently learning a lot of stuff
+- 👋 Hi, I’m Jonathan Alejandro @Planterna
+- 👀 I’m interested in Coding, Video Games, Cubos Rubik!
+- 🌱 I’m currently learning a lot of stuff
