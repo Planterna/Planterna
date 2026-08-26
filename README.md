@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Jonathan Alejandro @Planterna
-- 👀 I’m interested in Coding, Video Games, Cubos Rubik!
+- 👀 I’m interested in Coding, Video Games, Cubos Rubik, modding plants vs zombies saga!
 - 🌱 I’m currently learning a lot of stuff
